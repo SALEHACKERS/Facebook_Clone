@@ -1,7 +1,13 @@
    🔐PAID TOOL ONLY🔐 
-   https://git.io/typing-svg
 
 
+
+FOR BUY BY ME - TELEGRAM - @i4m_sale
+                
+
+
+
+         
 
 
 
